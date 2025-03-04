@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **hcan.grmz2000@gmail.com or hasancangormez26@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gjlhxXtGVYCFlFq6yuJ34ILBy9LQTK2i/view?usp=sharing](https://drive.google.com/file/d/1gjlhxXtGVYCFlFq6yuJ34ILBy9LQTK2i/view?usp=sharing)
+- 📄 Know about my experiences ==> [https://drive.google.com/file/d/1Vb0vwTo0HVOpLcbZTeJ4FU1UyPiJsVif/view?usp=sharing]
 
 
 <h3 align="left">Languages and Tools:</h3>
